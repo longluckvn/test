@@ -2,18 +2,3 @@ https://drive.google.com/file/d/19_fVgdthgmPiuUhxArW7puJvpD3oYvDL/view?usp=shari
 https://drive.google.com/drive/folders/1ixSOGNTIoWB3mdwa5yLDlYgVSUwjX-u1?usp=sharing
 https://drive.google.com/drive/folders/1A1L6wfJi27C8P4z3U2hvS42-I2Q5EQi7?usp=sharing
 
-https://drive.google.com/file/d/17rQyAp5SJN8tX6nuUzfZcUVUUGoZf2KL/view?usp=sharing
-https://drive.google.com/drive/folders/1CEzNzqmiPAh0t_KWo24InBfkxvLQXXGs?usp=sharing
-https://drive.google.com/drive/folders/1t2AckxEPwjUdcsgljRf73Dd6wafcpCZ7?usp=sharing
-https://drive.google.com/drive/folders/1z9bJL-mCF8wvj9PimbDsjHIu5DbL3Wyt?usp=sharing
-https://drive.google.com/drive/folders/1QasLoswD-Vl4k6i8g5Ern-jnVvcbhhSZ?usp=sharing
-https://drive.google.com/drive/folders/158k40KPjsPvvUhw84Yi90WfkYiLioOoN?usp=sharing
-https://drive.google.com/drive/folders/16ez-2xrm3Zb0duPCKNC3j0JZnfs9cOo8?usp=sharing
-https://drive.google.com/drive/folders/1aamv2vxnaHGcQzsPHE3n9C93sR7bCZyo?usp=sharing
-https://drive.google.com/drive/folders/1hgwzCN1LVCTJxQifKvHZYLamsygduBoG?usp=sharing
-
-wtf
-https://pixeldrain.com/u/p872sCCV
-https://pixeldrain.com/u/HbTMhPg3
-https://pixeldrain.com/u/TFjJHeUg
-https://pixeldrain.com/u/pn1gzrf5
